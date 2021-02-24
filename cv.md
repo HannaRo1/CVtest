@@ -20,3 +20,4 @@ _Community Manager, Wargaming (2018- Present)_
 - _Russian;_ 
 - _Belarusian;_
 ### __Education__
+- _Minsk State Lingustic University_
