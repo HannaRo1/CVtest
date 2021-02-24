@@ -21,3 +21,4 @@ _Community Manager, Wargaming (2018- Present)_
 - _Belarusian;_
 ### __Education__
 - _Minsk State Lingustic University_
+#### __Life is the real challenge and every day I am trying to learn new and develop my skills. That's why I am here. I have never had any experience before in programming, but I look forward to the day when courses start.__
